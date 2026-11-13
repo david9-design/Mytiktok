@@ -1,2 +1,1 @@
-# Mytiktok
-seputar akun sosial media
+link akun tiktok
